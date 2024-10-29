@@ -1,5 +1,8 @@
 Discord: **MineFrostID#9156**
 
+## [Seele Vollerei - Herrscher of Rebirth (GB) v1.0](https://skins.osuck.net/skins/3904)
+![](https://files.osuck.link/images/skins/161f0972fcc710a81226b2d42fd2d31a.webp)
+
 ## [io15](https://osu.ppy.sh/community/forums/topics/1688412?n=1)
 ![](https://i.imgur.com/o2dIfBu.jpeg)
 
