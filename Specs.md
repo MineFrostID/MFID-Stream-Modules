@@ -1,7 +1,4 @@
-# Spesifikasi PC
-
-Berikut adalah spesifikasi PC yang digunakan:
-
+# PC Specs
 ## Prosesor
 - **AMD Ryzen 5 4600G**  
   <img src="https://mfid.s-ul.eu/pc-specs/M6Lx0ytQ" width="300"/>
