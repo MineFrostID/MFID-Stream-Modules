@@ -1,5 +1,7 @@
 Discord: **MineFrostID#9156**
 
+You can find other skin at **[THIS WEBSITE by ck](https://skins.osuck.net/skins/popular?tab=downloads&mode=osu)**
+
 ## [io15 - Edited](https://drive.google.com/file/d/1FJ-3nQAZNXMj--AbG9VYq-8JLm-2pjK5/view?usp=sharing)
 ![](https://i.imgur.com/kk50X83.jpeg)
 
